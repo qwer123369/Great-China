@@ -1,1 +1,1 @@
-# bclswl0827.github.io
+# 社会主页核心价值观
